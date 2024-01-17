@@ -6,5 +6,5 @@ Follow my activity on [*Wakatime*](https://wakatime.com/@fallenreds)
 
 ![Wakatime](https://wakatime.com/share/@fallenreds/7baccd54-2ee8-473e-8ed0-d7029306bf1b.svg)
 
-![Wakatime](https://wakatime.com/share/@fallenreds/993f5ca1-c98d-440c-9f04-8de262329d31.svg)
+![Wakatime](https://wakatime.com/share/@fallenreds/6838d061-e6e7-4e2b-acc9-0d46dc0c0182.svg)
 
