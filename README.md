@@ -1,4 +1,4 @@
-### Hello everyone, I'm a Python developer who loves to create, break, destroy, and of course fix code.
+### Hello everyone, I'm a Project Manager and Python developer who loves to create, break, destroy, and of course fix code.
 
 # To contact me use [*Telegram*](https://t.me/fallenreds)
 
